@@ -2,7 +2,7 @@ Ingredients required :
 
 1 litre of water
 
-Del Monte pasta pack
+Barilla pasta pack
 
 tomato sauce
 
